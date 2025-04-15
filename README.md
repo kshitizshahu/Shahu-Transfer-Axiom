@@ -70,3 +70,4 @@ The Shahu Transfer Axiom suggests that nothing is ever truly lost — not even i
 
 **Tagline:**  
 *Black holes convert absorbed matter into transferable entropy, preserving order across universes without moving a single atom.*
+
